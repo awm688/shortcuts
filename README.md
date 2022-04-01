@@ -8,10 +8,6 @@
 
 - iphone 快捷指令
 
-联系:
-
-- qq 群:819021110
-- tg 频道:https://t.me/xuehuashe
 
 ## 导航
 
